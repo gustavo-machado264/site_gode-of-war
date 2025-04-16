@@ -1,1 +1,1 @@
-# site_gode-of-war
+# site_god-of-war
